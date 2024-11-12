@@ -1,4 +1,4 @@
-- 👋 Hi, I’m XUN @King928-1
+- 👋 Hi, I’m XUN
 - 👀 I’m interested in listening to music.
 - 🌱 I’m currently learning VMware.
 - 📫 You can contact me via Gmail.My google mailbox is sevenatlas3@gmail.com
